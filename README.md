@@ -13,6 +13,6 @@
 平台无广告，专注观影，且所有数据加密保护隐私。无需注册，直接访问即可匿名观看。
 如果你需要一个简便、高清、安全、免广告的平台，这里是理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/tr20250707/tr12 ）</span>
 
 
